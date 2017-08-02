@@ -1,4 +1,4 @@
-# 山美公益 草案 Shanmei Foundation draft
+# 山美公益 Shanmei Foundation
 
 山美公益创始于2010年初。
 
